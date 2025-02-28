@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JimboBobGames
-- 👀 I’m interested in ... Coding, Minecraft and soccar
+- 👀 I’m interested in ... Rocket League
 - 🌱 I’m currently learning ... Nothing
 - 💞️ I’m looking to collaborate on ... I go solo
 - 📫 How to reach me ... Don't
